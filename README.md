@@ -2,7 +2,7 @@
 
 this is Lawrence he is my meowmeow ![Tumblr_l_3945444190849](https://github.com/user-attachments/assets/fc9a2441-eae6-44ef-9f5a-3d7a3dd43205)
 
-read my stawpage its so sitma....![Tumblr_l_1530379595135678](https://github.com/user-attachments/assets/ea0eee5e-adc3-4f3a-b4f3-b84a7bacbd45)
+read my stawpage its so sigma....![Tumblr_l_1530379595135678](https://github.com/user-attachments/assets/ea0eee5e-adc3-4f3a-b4f3-b84a7bacbd45)
 
    
  ![ezgif-414434991fa7d7](https://github.com/user-attachments/assets/71a79211-9f06-410e-b277-daa8109e8953)
