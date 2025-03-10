@@ -7,7 +7,6 @@ read my stawpage its so sigma....![Tumblr_l_3945444190849](https://github.com/us
 
    
  ![ezgif-414434991fa7d7](https://github.com/user-attachments/assets/71a79211-9f06-410e-b277-daa8109e8953)
-
-![Tumblr_l_1531914893407231](https://github.com/user-attachments/assets/467036b6-546e-48c1-aefd-bebdbc889785)
+ 
 
 ![image0](https://github.com/user-attachments/assets/378e3c58-8827-47e9-bedb-c87558d42f8a)
