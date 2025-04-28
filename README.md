@@ -12,8 +12,3 @@ read my stawpage its so sigma....![Tumblr_l_3945444190849](https://github.com/us
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ttasktkcqm77utnjzmghbubs7q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
-
-   
- ![ezgif-414434991fa7d7](https://github.com/user-attachments/assets/71a79211-9f06-410e-b277-daa8109e8953)
- 
-
