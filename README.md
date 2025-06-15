@@ -29,3 +29,8 @@ read my stawpage its so sigma....![Tumblr_l_3945444190849](https://github.com/us
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ttasktkcqm77utnjzmghbubs7q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
+
+
+
+![IMG_20250615_210546](https://github.com/user-attachments/assets/a3e5ffca-b2b3-4e75-815f-628e4043477f)
+me zim and Milo bab💞
