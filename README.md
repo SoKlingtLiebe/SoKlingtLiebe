@@ -31,10 +31,14 @@ read my stawpage its so sigma....![Tumblr_l_3945444190849](https://github.com/us
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ttasktkcqm77utnjzmghbubs7q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-<img width="650" height="650" alt="image" src="https://github.com/user-attachments/assets/9ba45325-a436-45b3-bed3-4b0ccd0c68c9" />  <img width="690" height="690" alt="image" src="https://github.com/user-attachments/assets/a7aa3608-bce9-4041-8e1d-55796e78ca87" />  <img width="690" height="690" alt="image" src="https://github.com/user-attachments/assets/8015387a-2c89-4466-9a6a-82168a6e0e97" />  <img width="690" height="690" alt="image" src="https://github.com/user-attachments/assets/76936315-ed13-4f21-b74c-3b1e9122f4be" />
+<img width="501" height="408" alt="image" src="https://github.com/user-attachments/assets/0bad6b6f-c6e0-467d-82f3-4278ff975747" /> <img width="606" height="266" alt="image" src="https://github.com/user-attachments/assets/f7fa5bf7-a86d-499f-8e44-ef5711b9878a" /> <img width="674" height="448" alt="image" src="https://github.com/user-attachments/assets/cd93a743-fa62-4339-9779-4745c4c8f6e2" /> <img width="479" height="328" alt="image" src="https://github.com/user-attachments/assets/bccf2d74-fe25-48b2-af8b-1d3a422742f6" />
 
 
-ME AND MY BESTIES!!
+ME AND MY BESTIES! BEST GC EVER
+
+
+
+
 
 
 
