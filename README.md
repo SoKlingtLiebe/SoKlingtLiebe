@@ -31,6 +31,10 @@ read my stawpage its so sigma....![Tumblr_l_3945444190849](https://github.com/us
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ttasktkcqm77utnjzmghbubs7q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
 
 
+<img width="650" height="650" alt="image" src="https://github.com/user-attachments/assets/9ba45325-a436-45b3-bed3-4b0ccd0c68c9" />  <img width="690" height="690" alt="image" src="https://github.com/user-attachments/assets/a7aa3608-bce9-4041-8e1d-55796e78ca87" />  <img width="690" height="690" alt="image" src="https://github.com/user-attachments/assets/8015387a-2c89-4466-9a6a-82168a6e0e97" />  <img width="690" height="690" alt="image" src="https://github.com/user-attachments/assets/76936315-ed13-4f21-b74c-3b1e9122f4be" />
 
-![IMG_20250615_210546](https://github.com/user-attachments/assets/a3e5ffca-b2b3-4e75-815f-628e4043477f)
-me dan and Milo💞
+
+ME AND MY BESTIES!!
+
+
+
