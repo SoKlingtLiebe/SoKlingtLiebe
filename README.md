@@ -18,7 +18,7 @@
 
 
 
-![e45f639de9d5486eeb1ab8b4143cac53](https://github.com/user-attachments/assets/e33e0d3a-a040-464e-ade2-8892e22d1a64)
+<img width="350" height="20" alt="Tumblr_l_960814075156499" src="https://github.com/user-attachments/assets/97947780-90b7-4ec2-9f59-3d63dcaac75a" />
 
 
 
