@@ -27,7 +27,8 @@ read my stawpage its so sigma....![Tumblr_l_3945444190849](https://github.com/us
 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ttasktkcqm77utnjzmghbubs7q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile) ![8eec06cbe28113f4501027f0ae46a54e](https://github.com/user-attachments/assets/8621ef4b-fb92-4427-9c06-e587b9c43c10)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ttasktkcqm77utnjzmghbubs7q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile) ![IMG_20250920_092500](https://github.com/user-attachments/assets/83f65bdf-ebca-4f5b-bd27-fbf2c85d73a4)
+
 
 
 I LOVE BILLY MILO AND DAN SOSOSOSO MUCH💞🌺
