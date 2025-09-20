@@ -18,7 +18,7 @@
 
 
 
-<img width="350" height="20" alt="Tumblr_l_960814075156499" src="https://github.com/user-attachments/assets/97947780-90b7-4ec2-9f59-3d63dcaac75a" />
+<img width="1000" height="20" alt="Tumblr_l_960814075156499" src="https://github.com/user-attachments/assets/97947780-90b7-4ec2-9f59-3d63dcaac75a" />
 
 
 
