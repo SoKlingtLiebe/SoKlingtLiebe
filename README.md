@@ -27,7 +27,8 @@ read my stawpage its so sigma....![Tumblr_l_3945444190849](https://github.com/us
 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ttasktkcqm77utnjzmghbubs7q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile) ![IMG_20250920_092500](https://github.com/user-attachments/assets/83f65bdf-ebca-4f5b-bd27-fbf2c85d73a4)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ttasktkcqm77utnjzmghbubs7q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile) ![IMG_20250920_092649](https://github.com/user-attachments/assets/e4f6643b-785d-4b8d-b597-b9040483488a)
+
 
 
 
