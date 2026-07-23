@@ -2,6 +2,10 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀────୨ৎ────
 
 𐔌  name  𓏵  name ⁺  ︵ ༺
+
   𓂃  prns , prns  ꕮ 
+  
 mbti  ︴sexuality  𑁥౿
+
 ୨୧┈୨୧  extra !!  𓎢𓎟  ╱ link
+
