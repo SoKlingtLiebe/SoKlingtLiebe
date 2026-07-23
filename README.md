@@ -13,7 +13,9 @@ TRANSMASC  ︴DEMIBOY  𑁥౿⠀⠀⠀⠀⠀<img width="150" height="20" alt="t
  𑁥13.5.2010౿ - "And I love you,will"!! ⠀⠀<img width="102" height="56" alt="tumblr_526ebefb245b3d9f9de1967b03c01f6d_cb506411_250" src="https://github.com/user-attachments/assets/9f938edc-32ef-4da2-8e30-a9f6faeb5a1b" />
 
 
-𓎢𓎟  ╱ Read my pronounspage
+𓎢𓎟  ╱ Read my pronounspage⠀⠀⠀⠀⠀⠀<img width="99" height="56" alt="blinkies-hannigram" src="https://github.com/user-attachments/assets/3697bf02-5bd5-4e43-9c0f-907ac602a705" />. <img width="101" height="56" alt="tumblr_730592457a9d752ac2ed415e0ca0fa0c_7d53cd16_250" src="https://github.com/user-attachments/assets/a4afc0e8-cfe2-4989-adcc-dd86ea3d8779" />
+
+
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀────୨ৎ────
 
