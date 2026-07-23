@@ -20,8 +20,5 @@ TRANSMASC  ︴DEMIBOY  𑁥౿⠀⠀⠀⠀⠀<img width="150" height="20" alt="t
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀────୨ৎ────
 
 
-
-<img width="101" height="56" alt="tumblr_730592457a9d752ac2ed415e0ca0fa0c_7d53cd16_250" src="https://github.com/user-attachments/assets/11cf6b4b-a195-4db8-b0d8-ec57b28ceef6" />
-
-
- <img width="380" height="476" alt="Tumblr_l_81580951315938" src="https://github.com/user-attachments/assets/548213d4-ad79-4fd4-9b07-99bd718f24b6" />  
+ <img width="380" height="476" alt="Tumblr_l_81580951315938" src="https://github.com/user-attachments/assets/548213d4-ad79-4fd4-9b07-99bd718f24b6" />  <img width="101" height="56" alt="tumblr_730592457a9d752ac2ed415e0ca0fa0c_7d53cd16_250" src="https://github.com/user-attachments/assets/11cf6b4b-a195-4db8-b0d8-ec57b28ceef6" />
+ 
